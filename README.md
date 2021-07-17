@@ -6,9 +6,8 @@ Hola, I'm Shripal Panchiwala! 👋
 
 -💬 Ask me about Mean/Mern Stack or any tech related stuff.
 
--📫 How to reach me: Twitter - @imthepk , insta - @shri_m.p
+-📫 How to reach me: Twitter - @Shri96424793 , insta - @shri_m.p
 
--😄 Pronouns: He/His
 
 -⚡ Fun fact: I spend almost 2 hours listening songs everyday.
 
